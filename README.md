@@ -1,1 +1,1 @@
-https://uyanga03.github.io/wattpad/
+https://uyanga03.github.io/uyanga/
